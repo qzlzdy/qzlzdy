@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @qzlzdy
 - 👀 I’m interested in 二次元
 - 🌱 I’m currently learning 魔法
-- 💞️ I’m looking to collaborate on GHS
+- 💞️ I’m looking to collaborate on 搞黄色
 - 📫 How to reach me ...
 
 <!---
