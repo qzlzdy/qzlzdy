@@ -2,7 +2,7 @@
 - 👀 I’m interested in 二次元
 - 🌱 I’m currently learning 魔法
 - 💞️ I’m looking to collaborate on 搞黄色
-- 📫 How to reach me ...
+- 📫 How to reach me 戴兽耳 穿白丝 白猫红瞳双马尾 傲娇平胸抖S
 
 <!---
 qzlzdy/qzlzdy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
